@@ -1,0 +1,1 @@
+quality contol in manufacturing
